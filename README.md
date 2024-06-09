@@ -8,4 +8,8 @@ Let's get started 👩🏾‍🚀👨🏾‍🚀🚀 !!
 
 1. Habari 🌍 !
 2. Namnani 🌍 !
-3. Gawiza 🌍 !
+3. Kinehe 🌍 ! 
+4. Za mitondo 🌍 !
+5. Gawiza 🌍 !
+
+
