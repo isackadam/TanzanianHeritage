@@ -8,5 +8,9 @@ Let's get started 👩🏾‍🚀👨🏾‍🚀🚀 !!
 
 1. Habari 🌍 !
 2. Namnani 🌍 !
-3. Bonjour 🌍 !
-4. 
+3. Kinehe 🌍 ! 
+4. Za mitondo 🌍 !
+5. Gawiza 🌍 !
+6. Kamwene 🌍 !
+7. Bonjour 🌍 !
+
